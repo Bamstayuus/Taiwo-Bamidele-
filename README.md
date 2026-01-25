@@ -30,3 +30,4 @@ Currently targeting DevOps / Platform / Cloud Engineer roles in the UK.
 ## Contact +447733819694
 LinkedIn: ...in/taiwo-bamidele-293786119
 Email: ...bamideletaiwojoshua@gmail.com
+#Thank you.
